@@ -6,7 +6,7 @@
 
 ![傻狗女人说自己是酷狗](https://github.com/fanfan2018/Photos/blob/master/傻狗女人说自己是酷狗.jpeg)
 
-![傻狗女人说自己是酷狗2](https://github.com/fanfan2018/Photos/blob/master/傻狗女人说自己是酷狗2.jpeg)
+![傻狗女人说自己是酷狗2](https://github.com/fanfan2018/Photos/blob/master/傻狗女人说自己是酷狗2.jpg)
 
 ![漂亮傻狗](https://github.com/fanfan2018/Photos/blob/master/漂亮傻狗.jpg)
 
