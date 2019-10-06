@@ -1,14 +1,16 @@
 #### This is my photos
 
-![苏苏PC壁纸](https://github.com/fanfan2018/Photos/blob/master/susu.jpg)
+![傻狗剪发](https://github.com/fanfan2018/Photos/blob/master/傻狗剪发.jpg)
 
-![红红](https://github.com/fanfan2018/Photos/blob/master/红红.jpg)
+![傻狗剪发剪刀手](https://github.com/fanfan2018/Photos/blob/master/傻狗剪发剪刀手.jpg)
 
-![苏苏](https://github.com/fanfan2018/Photos/blob/master/苏苏.jpg)
+![傻狗女人说自己是酷狗](https://github.com/fanfan2018/Photos/blob/master/傻狗女人说自己是酷狗.jpeg)
 
-![蓉蓉](https://github.com/fanfan2018/Photos/blob/master/蓉蓉.jpg)
+![傻狗女人说自己是酷狗2](https://github.com/fanfan2018/Photos/blob/master/傻狗女人说自己是酷狗2.jpeg)
 
-![躺着](https://github.com/fanfan2018/Photos/blob/master/躺着.jpg)
+![漂亮傻狗](https://github.com/fanfan2018/Photos/blob/master/漂亮傻狗.jpg)
+
+![长发傻狗](https://github.com/fanfan2018/Photos/blob/master/长发傻狗.jpg)
 
 
 
